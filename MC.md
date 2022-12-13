@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LJJERRY
+- 👀 I’m interested in programming
+- YT YouTube.com/@LJJERRY
